@@ -1,0 +1,1 @@
+# -QRRevision-Tecnica-aspx-patenteKS9321
